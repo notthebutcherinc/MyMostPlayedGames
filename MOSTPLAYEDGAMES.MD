@@ -19,3 +19,5 @@
 1. PUBG: BATTLEGROUNDS - 2294 hours
 2. Team Fortress Classic - ca 1500 hours
 3. Counter-Strike: Source - 494 hours
+4. Among Us - 3 hours
+
