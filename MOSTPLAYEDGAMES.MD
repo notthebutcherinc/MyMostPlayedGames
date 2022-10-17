@@ -13,3 +13,7 @@
 2. Call of Dury - Warzone - unknown
 3. Battlefield 5 - 10 hours
 4. Witcher 3 - ca 100 hours
+
+**bagges**
+
+1. PUBG: BATTLEGROUNDS - 2294 hours
